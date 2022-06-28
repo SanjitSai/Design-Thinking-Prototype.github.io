@@ -1,1 +1,1 @@
-# siuuuuuuuuuuuuuuuuuuuuuuuuuu.github.io
+# Design-thinking-prototype.github.io
